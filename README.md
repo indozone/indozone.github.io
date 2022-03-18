@@ -1,2 +1,2 @@
 # Technical problem
-https://imclueo.com/kejh
+https://imclueo.com/kplaza
